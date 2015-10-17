@@ -24,6 +24,8 @@ To the list:
 
 **The Art of Non-Conformity** (A Arte da Não Conformidade) - *Chris Guillebeau*
 
+**Seu Cliente Pode Pagar Mais** - *Ian Brooks*
+
 **A Menina do Vale** - *Bel Pesce*
 
 **Viva Seu Tempo** - *Daniel Wildt*
