@@ -39,6 +39,8 @@ To the list:
 **Blue Ocean Strategy** (A Estratégia do Oceano Azul) - *Renée Mauborgne and W. Chan Kim*
 
 
+
+
 *Here are further books contributed by the public*
 
 **1. The 7 Habits of Highly** Effective People (by Stephen Covey)
